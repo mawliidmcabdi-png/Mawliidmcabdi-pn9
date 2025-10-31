@@ -1,0 +1,14 @@
+MAWLIID
+cabdi
+cabdilaahi
+diiriye
+rage 
+rouble 
+siyaad
+cismaan
+waadhow
+xirsi
+ciise
+muuse
+idrays
+ciise
